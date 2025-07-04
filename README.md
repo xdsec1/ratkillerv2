@@ -55,7 +55,6 @@ Born from the underground, designed for the conscious, and rebuilt for a new age
 
 \\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\\
 
-![image](https://github.com/user-attachments/assets/a5e2b22f-9e1b-42f9-89b7-dbb12987445c)
 
 
 
